@@ -1,4 +1,4 @@
-i want to talk to  uuuuu .
+i want to talk to  uuuuu . ![image](https://64.media.tumblr.com/8196d21bc0d37daa10a1bb9cf2eeeb6f/c745b2584575a2b8-af/s75x75_c1/9399207a8fb7c600d21d94b06c8785bd4d4f6ba3.gifv)
 
 ![image](https://media.discordapp.net/attachments/729863935498518578/1381437840830759064/Screenshot_2025-06-08_210039.png?ex=684783bf&is=6846323f&hm=219c06f62533af05d9d9ca8c71313c705ee60d7d4f22ee7d470e0d80c26f5050&=&format=webp&quality=lossless&width=233&height=151)
 
