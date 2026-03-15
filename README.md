@@ -1,4 +1,4 @@
-<p align ="center"> jules󠀠,  he/she󠀠,  19󠀠 󠀠 °‧ 𓆝 𓆟 𓆞 ·｡  <br>
+<p align ="center"> jules󠀠,  he/she󠀠,  19󠀠 󠀠 ♓︎
 
 <p align="center"> <img src=https://64.media.tumblr.com/dc99f97df0f6b3910e82168c68a7f490/d34a03c7bb40ab59-38/s250x400/387930f51cc5d1dc93b265bd133949b09b4c2048.gif> <img src=https://64.media.tumblr.com/7108044492cd6aa9a6a77710ef9124f4/aa0ca966b0701596-64/s250x400/5194067b1e69a1def9592e3a7349d00ff5d16789.webp> <img src=https://64.media.tumblr.com/e56baf0d05d800cefc05c7d1ccaba7f4/03701ddfcc6ed073-1c/s250x400/cdcf48c376a21a0ebcece8b90c2a9abe13e00f32.jpg> <img src=https://64.media.tumblr.com/6cd4a9368b09375bbff1f744bb6ae936/977bd8411900385c-18/s250x400/57e3262e7b021366f89f01fa5c6a19a39469e338.gifv>
 <p align="center"> <img src=https://lattice9.net/buttons/278.gif> <img src=https://lattice9.net/buttons/766.gif> <img src=https://lattice9.net/buttons/731.gif> <img src=https://lattice9.net/buttons/711.gif> <img src=https://lattice9.net/buttons/718.gif>
