@@ -1,4 +1,5 @@
-![image](https://lattice9.net/buttons/278.gif) ![image](https://lattice9.net/buttons/766.gif) ![image](https://lattice9.net/buttons/731.gif) ![image](https://lattice9.net/buttons/711.gif) ![image](https://lattice9.net/buttons/718.gif)
+<p align="center"> <img src=https://lattice9.net/buttons/278.gif> <img src=https://lattice9.net/buttons/766.gif> <img src=https://lattice9.net/buttons/731.gif> <img src=https://lattice9.net/buttons/711.gif> <img src=https://lattice9.net/buttons/718.gif>
+
 <!--
 **theframe2r/theframe2r** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
